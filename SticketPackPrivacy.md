@@ -1,0 +1,3 @@
+****iMessage Sticker Pack Privacy Policy****
+
+**We do not collect or access any user information.**
